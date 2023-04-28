@@ -5,3 +5,5 @@ Naufal Ammar Hidayatulloh
 
 ---
 [<img src="https://i.ytimg.com/vi/aiVChFUlCp0/maxresdefault.jpg" width="100%">](https://www.youtube.com/watch?v=aiVChFUlCp0 "Face Detection")
+
+Klik pada gambar untuk melihat video.
